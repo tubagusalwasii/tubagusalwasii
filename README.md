@@ -3,7 +3,7 @@
 
 - 👨‍💻 All of my projects are available at [tubagusalwasii.my.id](tubagusalwasii.my.id)
 
-- 📫 How to reach me **tubagusalesi@gmail.com**
+- 📫 How to reach me **tubagusalwasiii@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
